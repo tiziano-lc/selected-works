@@ -1,4 +1,4 @@
-# Tizi
+# T
 
 **Senior UX Designer · Design Strategist · Product Thinker**  
 Based in Stuttgart · Working across automotive, mobility, and digital product contexts
